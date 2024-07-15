@@ -1,3 +1,0 @@
-sadaada
-
-![image-20240715114125299](images/image-20240715114125299.png)
